@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @lobbinliu
+- 👋 Hi, I’m @lobbinliu I'm a 11-years-old girl
 - 👀 I’m interested in dominating the world
 - 🌱 I’m currently learning multimedia graphic
 - 💞️ I’m looking to collaborate on a fun color-reading turntable
